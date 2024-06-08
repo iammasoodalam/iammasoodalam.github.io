@@ -1,3 +1,3 @@
-[Mohd Masood Alam](https://twitter.com)
+[Mohd Masood Alam](https://x.com/iammasoodalam)
 <br>
-[Mohammad Masood Alam](https://instagram.com)
+[Mohammad Masood Alam](https://instagram.com/iammasoodalam)
